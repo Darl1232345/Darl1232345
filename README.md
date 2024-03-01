@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Darl1232345
+- 👋 Hi, I’m Asomani Rawlings Junior
 - 👀 I’m interested in ...project management 
 - 🌱 I’m currently learning ...project management 
 - 💞️ I’m looking to collaborate on ...
